@@ -1,1 +1,2 @@
-# discord_bot_my_server_pls_not_hakeing
+# botmc-bot
+hleolrelrleroeoroer
